@@ -1,1 +1,1 @@
-# Web-Teknolojileri
+Github linkimden de göreceğiniz üzere ben Ahmet Berke Cindi.Ödevimde ilk olarak kendimi tanıtacağım.Güzelim şehrim,memleketim Kayserimi tanıtacağım.Kayserimin tarihinden,doğal güzelliklerine,gezilecek yerlerine,sosyal yaşam merkezlerini,futbol takımı gibi birçok şeyden bahsedeciğim.İstenilenler ödevde kullanılacak
